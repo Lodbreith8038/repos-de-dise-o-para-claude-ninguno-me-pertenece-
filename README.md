@@ -1,0 +1,1 @@
+# repos-de-dise-o-para-claude-ninguno-me-pertenece-
